@@ -9,6 +9,3 @@
 
 - ⚡ Fun fact **My birth Mark is a Heart on My heart**
 
-<h3 align="left">Connect with me:</h3>
-<p align="left">
-</p>
